@@ -1,0 +1,1 @@
+# AKm-25-2-Intelligence-Methods-in-Cybersecurity
